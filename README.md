@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Rishabh2763
+- 👀 I’m interested in computer programming
+- 🌱 I’m currently a high school student.
