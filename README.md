@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Rishabh Lakhaiyar
 - 👀 I’m interested in computer programming
-- 🌱 I’m currently a high school student.
+- 🌱 I’m currently a Undergraduate.
